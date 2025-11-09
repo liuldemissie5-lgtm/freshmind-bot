@@ -1,2 +1,2 @@
 # freshmind-bot
-1rear-1semister-softclass- liul and others
+1rea -1semister-softclass- liul and others
